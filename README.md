@@ -18,4 +18,4 @@ Have fun building! 🚀
 
 https://kiwiorbit.github.io/Profile-link-Nuzhat-Sultana
 
-![Sample Image ]](image-1.png)
+![image](https://github.com/kiwiorbit/Profile-link-Nuzhat-Sultana/assets/144852961/9fce5541-c487-4894-be2c-2da942adc078)
